@@ -59,7 +59,7 @@
 ### 📫 Contact Me
 - 📧 rohithpalika01@gmail.com  
 - 🔗 [LinkedIn](https://www.linkedin.com/in/rohithpalika)  
-- 📄 [Resume](https://drive.google.com/file/d/1cFYhoF_J96oHZF8V0JhGe4TddIxtBe89/view?usp=sharing)
+- 📄 [Resume](https://drive.google.com/file/d/1IdOFRZJIceu3v__n-0g_mSng21RxaspF/view?usp=sharing)
 
 ---
 
